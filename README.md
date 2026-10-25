@@ -2,6 +2,6 @@
 
 B.A. in Economics
 
-- obsessed with math
-- futsal every weekend, rain or shine
-- pixel art & Nintendo forever
+- obsessed with math 💙
+- futsal every weekend, rain or shine 🌤️
+- pixel art & Nintendo forever 🎮
